@@ -1,1 +1,1 @@
-MergeCoin gonne take over Bitcoin!!!!
+MergeCoin is gonne take over Bitcoin!!!!
